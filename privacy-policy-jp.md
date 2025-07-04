@@ -56,7 +56,7 @@ Colo, LLC（以下「当社」）は、「マリコのAIタロット占い」（
 プライバシーに関するご質問やご懸念がございましたら、下記までご連絡ください：
 
 **Colo, LLC**  
-Email: feedback@lovecolo.com
+Email: skurishima@lovecolo.com
 
 ---
 
